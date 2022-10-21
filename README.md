@@ -1,0 +1,1 @@
+# Alana_ss_analiseQualitativa
